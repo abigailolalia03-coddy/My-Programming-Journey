@@ -40,7 +40,7 @@ This repository contains my programming activities, exercises, practice codes, a
 
 ⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹
 
- "Every expert was once a beginner."
+ "Every expert was once a beginner hehe."
 
 Thanks for visiting my profile! ♡ ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾
 
