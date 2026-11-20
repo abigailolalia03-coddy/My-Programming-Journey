@@ -36,7 +36,7 @@ I'm a BSIT student who is starting my journey in the world of programming and te
 
 This repository contains my programming activities, exercises, practice codes, and projects as I continue learning.
 
-Every line of code is part of my progress!
+ᛝ Every line of code is part of my progress!
 
 ⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹
 
