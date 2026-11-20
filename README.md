@@ -1,8 +1,8 @@
-# ⋆𐙚₊˚⊹♡ My-Programming-Journey
+# ⋆𐙚₊˚⊹♡ My-Programming-Journey ᭪༊
 
-# Hi y'all, I'm Abi! ⸜(｡˃ ᵕ ˂ )⸝♡
+# Hi y'all, I'm Abi po! ⸜(｡˃ ᵕ ˂ )⸝♡
 
-𝜗ৎ Welcome to my GitHub profile! ^-^
+𝜗ৎ Welcome to my GitHub profile! ^-^ ⡞⠳⣄⣀⣠⠞⢷ ֹ۪
 
 I'm a BSIT student who is starting my journey in the world of programming and technology. I'm still learning, exploring, and improving my coding skills one step at a time.
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
