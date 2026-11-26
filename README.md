@@ -31,6 +31,7 @@ I'm a BSIT student who is starting my journey in the world of programming and te
 - ˚ʚ♡ɞ˚Become better at problem-solving
 - ˚ʚ♡ɞ˚Create something meaningful through technology
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+## ⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹ ︶︶︶  ୨୧  ︶︶︶ ⊹
 
 ## My Journey ( ꩜ ᯅ ꩜;)⁭ ⁭
 
